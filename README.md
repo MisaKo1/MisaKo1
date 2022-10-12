@@ -1,18 +1,20 @@
-<h3 align="center">A passionate frontend developer from India</h3>
 
-- 🎮 My favorite games - **Valorant, LoL, RE8, DBD, and more...**
 
 - 🎉 I’m currently studying **IT (at SPSMB)**
 
+- 🏫 Learning (Java / JavaScript)
+
 - 🕐 My hobbies - **Videogames, anime and programming**
 
-- 🏫 Learning [Java / JavaScript](Java / JavaScript)
+- 🎮 My favorite games - **Valorant, LoL, RE8, DBD, and more...**
 
 - 📞 You can contact me on **discord(MisaKo1#6969),**
 
 - ⚡ Fun fact **everything is a jojo reference**
 
 <h3 align="left">Connect with me:</h3>
+ig: <a href=https://www.instagram.com/misako1_>misako1_</a>
+u can add me on <a href=https://steamcommunity.com/id/48512564/>steam</a>
 <p align="left">
 </p>
 
