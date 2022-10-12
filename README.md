@@ -25,6 +25,7 @@ u can add me on <a href=https://steamcommunity.com/id/48512564/>Steam</a>
 <br>
 
 <img>![jojos-bizarre-adventure-anime](https://user-images.githubusercontent.com/115611762/195368356-1392f848-2770-48f6-af4b-0b883917715c.gif)</img>
+
 Bites the dust!
 
 
