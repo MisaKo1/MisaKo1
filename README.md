@@ -1,7 +1,7 @@
 <h1 align="center">Hello ✌, My name is Michal Kostecký</h1>
 - 🎉 I’m currently learning **IT (at SPSMB)**
 
-- 📞 You can contact me on **discord, email(misa.kostecky@seznam.cz)**
+- 📞 You can contact me on **discord, email**
 
 - 🕐 My hobbies - **videogames, anime and programming**
 
