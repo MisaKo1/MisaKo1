@@ -1,13 +1,16 @@
-<h1 align="center">Hello ✌, My name is Michal Kostecký</h1>
-- 🎉 I’m currently learning **IT (at SPSMB)**
-
-- 📞 You can contact me on **discord, email**
-
-- 🕐 My hobbies - **videogames, anime and programming**
+<h3 align="center">A passionate frontend developer from India</h3>
 
 - 🎮 My favorite games - **Valorant, LoL, RE8, DBD, and more...**
 
-- ⚡ Fun fact **Everything is a JoJo reference**
+- 🎉 I’m currently studying **IT (at SPSMB)**
+
+- 🕐 My hobbies - **Videogames, anime and programming**
+
+- 🏫 Learning [Java / JavaScript](Java / JavaScript)
+
+- 📞 You can contact me on **discord(MisaKo1#6969),**
+
+- ⚡ Fun fact **everything is a jojo reference**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
