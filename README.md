@@ -29,4 +29,6 @@ u can add me on <a href=https://steamcommunity.com/id/48512564/>Steam</a>
 Bites the dust!
 
 
+<img>![jojo-jojos-bizarre-adventure](https://user-images.githubusercontent.com/115611762/195370715-b75f8734-93bd-41bb-8b73-491504f7b095.gif)</img>
+
 
