@@ -8,7 +8,7 @@
 
 - 🎮 My favorite games - **Valorant, LoL, RE8, DBD, and more...**
 
-- 📞 You can contact me on **discord(MisaKo1#6969),<a href=https://www.facebook.com/profile.php?id=100011422383628>facebook</a>**
+- 📞 You can contact me on **discord(MisaKo1#6969),<a href=https://www.facebook.com/profile.php?id=100011422383628/>SPSMB</a>**
 
 - ⚡ Fun fact **everything is a jojo reference**
 
