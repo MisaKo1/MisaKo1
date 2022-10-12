@@ -30,6 +30,6 @@ Bites the dust!
 
 
 
-<img>![kirari](https://user-images.githubusercontent.com/115611762/195371082-d5da086c-cf80-430a-be73-7eb5b855159f.gif)</img>
+<img>![meme](https://user-images.githubusercontent.com/115611762/195372299-d6e5ac5e-755e-41f8-bc42-7eac19aae94b.jpg)</img>
 
 
