@@ -30,4 +30,3 @@ Bites the dust!
 
 
 
-<img>![4c50204be70b65a40eac93c5bfb8e05c4a24503d](https://user-images.githubusercontent.com/115611762/195363912-caf0fccc-e9f3-4193-8246-61e276b3721d.png)</img>
