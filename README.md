@@ -10,13 +10,13 @@
 
 - 📞 You can contact me on **discord(MisaKo1#6969)**
 
-- ⚡ Fun fact **everything is a jojo reference**
+- ⚡ Fun fact **everything is a JoJo reference**
 
 <img>![zawarudo-starplatinum-power](https://user-images.githubusercontent.com/115611762/195364904-4b30d4f1-5c13-40ef-bb1e-c6c50398fef0.gif)</img>
 
 <h3 align="left">Social media:</h3>
 ig: <a href=https://www.instagram.com/misako1_>misako1_</a><br>
-u can add me on <a href=https://steamcommunity.com/id/48512564/>steam</a>
+u can add me on <a href=https://steamcommunity.com/id/48512564/>Steam</a>
 <p align="left">
 </p>
 
