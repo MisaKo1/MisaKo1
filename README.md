@@ -30,6 +30,7 @@ Bites the dust!
 
 
 
-<img>![meme](https://user-images.githubusercontent.com/115611762/195372299-d6e5ac5e-755e-41f8-bc42-7eac19aae94b.jpg)</img>
+
+<img>![jojo meme](https://user-images.githubusercontent.com/115611762/195373305-e40be7df-782b-4f48-aab9-5ef86b34898f.jpeg)</img>
 
 
