@@ -13,7 +13,7 @@
 - ⚡ Fun fact **everything is a jojo reference**
 
 <h3 align="left">Connect with me:</h3>
-ig: <a href=https://www.instagram.com/misako1_>misako1_</a>
+ig: <a href=https://www.instagram.com/misako1_>misako1_</a><br>
 u can add me on <a href=https://steamcommunity.com/id/48512564/>steam</a>
 <p align="left">
 </p>
