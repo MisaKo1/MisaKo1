@@ -8,7 +8,7 @@
 
 - 🎮 My favorite games - **Valorant, LoL, RE8, DBD, and more...**
 
-- 😜 League of legends **professional**
+- 😜 Right now improving in **league of legends** 
 
 - 📞 You can contact me on **discord(MisaKo1#6969)**
 
