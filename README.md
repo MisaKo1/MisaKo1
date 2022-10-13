@@ -8,7 +8,7 @@
 
 - 🎮 My favorite games - **Valorant, LoL, RE8, DBD, and more...**
 
-- 😜 Right now improving in **league of legends** 
+- 😜 Right now improving in **League of Legends** 
 
 - 📞 You can contact me on **discord(MisaKo1#6969)**
 
