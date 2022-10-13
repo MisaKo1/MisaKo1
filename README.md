@@ -8,6 +8,8 @@
 
 - 🎮 My favorite games - **Valorant, LoL, RE8, DBD, and more...**
 
+- 😜 League of legends professional
+
 - 📞 You can contact me on **discord(MisaKo1#6969)**
 
 - ⚡ Fun fact **everything is a JoJo reference**
